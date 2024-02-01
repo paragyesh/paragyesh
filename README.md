@@ -1,4 +1,4 @@
-# [Parag Y]
+# Parag Y
 
 ## 🚀 About Me
 
