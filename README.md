@@ -21,7 +21,7 @@ My goal is to contribute my skills to a dynamic team within a forward-thinking c
 I'm eager to connect with professionals and explore potential collaborations.
 Feel free to reach out if you share a passion for Data, Management & AI/ML or if you have any exciting opportunities on the horizon.
 
-Connect with me on [LinkedIn](www.linkedin.com/in/parag-y-03a493217) | Follow me on [Twitter](https://twitter.com/paragyesh)
+Connect with me on [LinkedIn](www.linkedin.com/in/parag-y-03a493217) | Follow me on [Twitter](https://twitter.com/y_parag1993)
 
 🔗
 
