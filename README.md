@@ -15,11 +15,11 @@ My diverse experience allows me to navigate complex challenges and deliver resul
 
 ## 🤝 Seeking Opportunities
 I am currently exploring exciting opportunities in project management and data science. 
-My goal is to contribute my skills to a dynamic team within a forward-thinking company, ideally in a role that involves [mention specific interest statement here].
+My goal is to contribute my skills to a dynamic team within a forward-thinking company, ideally in a role that involves Data Science,Data Analysis & AI/ML.
 
 ## 📬 Let's Connect!
 I'm eager to connect with professionals and explore potential collaborations.
-Feel free to reach out if you share a passion for [mention any specific interest or technology] or if you have any exciting opportunities on the horizon.
+Feel free to reach out if you share a passion for Data, Management & AI/ML or if you have any exciting opportunities on the horizon.
 
 Connect with me on [LinkedIn](www.linkedin.com/in/parag-y-03a493217) | Follow me on [Twitter](https://twitter.com/paragyesh)
 
