@@ -2,7 +2,7 @@
 
 ## 🚀 About Me
 
-I am a seasoned Project Manager with over 4 years of global experience, specializing in data science and analysis. 
+I am a seasoned Project Manager with over 5 years of global experience, specializing in data science and analysis. 
 My track record includes successfully managing various projects on an international scale, coupled with a strong background in business development within project management roles.
 
 ## 💼 Professional Expertise
